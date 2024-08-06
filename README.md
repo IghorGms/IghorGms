@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IghorGms
 - 🇧🇷 / 🇺🇸
-- - 📚 Bachelor Degree in LAw
+- 📚 Bachelor Degree in LAw
 - 💻 Currently studing Systems Information - 2025 Grad.
 - 👀 Current looking for some coding development
 - 🌱 I’m currently learning and evolving skills on Front-End development! 
