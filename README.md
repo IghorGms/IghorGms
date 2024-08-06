@@ -7,5 +7,3 @@
 - 📫 mail me: ighorgoncalves@gmail.com
 - 🖇️Reach me out on linkedin! -> https://www.linkedin.com/in/ighorgomes1/
 - ⚡ Fun fact: im a dog person, movie enthusiast and tecnology fan! <3
-- 
-
