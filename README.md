@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @IghorGms
+- 🇧🇷 / 🇺🇸
+- - 📚 Bachelor Degree in LAw
+- 💻 Currently studing Systems Information - 2025 Grad.
+- 👀 Current looking for some coding development
+- 🌱 I’m currently learning and evolving skills on Front-End development! 
+- 📫 mail me: ighorgoncalves@gmail.com
+- 🖇️Reach me out on linkedin! -> https://www.linkedin.com/in/ighorgomes1/
+- ⚡ Fun fact: im a dog person, movie enthusiast and tecnology fan! <3
+- 
+
