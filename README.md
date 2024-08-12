@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IghorGms
+- 👋 Hi, I’m @IghorGms a.k.a Ighor Gomes or just "Guigo" (:
 - 🇧🇷 / 🇺🇸
 - 📚 Bachelor Degree in LAw
 - 💻 Currently studing Systems Information - 2025 Grad.
