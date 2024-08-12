@@ -2,7 +2,7 @@
 - 🇧🇷 / 🇺🇸
 - 📚 Bachelor Degree in LAw
 - 💻 Currently studing Systems Information - 2025 Grad.
-- 👀 Current looking for some coding development
+- 👀 Also looking for some coding development / experience to help me improve my skills!
 - 🌱 I’m currently learning and evolving skills on Front-End development! 
 - 📫 mail me: ighorgoncalves@gmail.com
 - 🖇️Reach me out on linkedin! -> https://www.linkedin.com/in/ighorgomes1/
